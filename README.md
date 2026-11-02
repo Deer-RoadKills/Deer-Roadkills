@@ -1,7 +1,9 @@
-<p align="center">
-- Natalie / Nat .
+
+<div align="center">
+
+ - Natalie / Nat .
 - She / he ,, masc lesbian
 - bpd ocd freak
-    </a>
+- irl natalie scatorccio + misty quigley
 
-
+</div>
