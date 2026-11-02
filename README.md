@@ -11,7 +11,7 @@
  - Natalie / Nat .
 - She / he ,, masc lesbian
 - bpd ocd freak
-- iayor alltimes.
+- iayor alltimes. i can be nonverbal due to my autism alot, and i have short temperment. 
 - mainly find me as antlerqueen , shauna shipman , or nat.
 - irl natalie scatorccio + misty quigley
 - lottienat / butcherqueen truther .
