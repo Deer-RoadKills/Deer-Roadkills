@@ -10,14 +10,13 @@
  ![](https://img.shields.io/static/v1?label=ANTLERQUEEN&message=3&color=red)
  - Natalie / Nat .
 - She / he ,, masc lesbian
-- bpd ocd freak
-- iayor alltimes. i can be nonverbal due to my autism alot, and i have short temperment. 
-- mainly find me as antlerqueen , shauna shipman , or nat.
-- irl natalie scatorccio + misty quigley
-- lottienat / butcherqueen truther .
 - <details>
-  <summary>dni</summary> anti petre/agere , homophobes, racists, ableists, anti whatever ship trope yj ships are (exp; Butcherqueen, lottienat), anti furries, ZOOPHILES DNI DNID DNI DNID NNI EWWWWW, pedophiles DNID DNIDINDNINDIDNIDNIDIN EWWWW, if youre gonna flirt with me as a MAN. nty. ifu u dont respect my boundaries, shauna shipman haters dni 
-  
+  <summary>info</summary>- I also go by misty !! All socials milliesaxe. bpd ocd freak. iayor alltimes. i can be nonverbal due to my autism alot, and i have short temperment.  mainly find me as antlerqueen , shauna shipman , or nat. irl natalie scatorccio + misty quigley.  lottienat / butcherqueen truther . Often alone, but u can find me with friends sometimes. I am a PETRE. 
+- <details>
+  <summary>dni</summary> anti petre/agere , homophobes, racists, ableists, anti whatever ship trope yj ships are (exp; Butcherqueen, lottienat), anti furries, ZOOPHILES DNI DNID DNI DNID NNI EWWWWW, pedophiles DNID DNIDINDNINDIDNIDNIDIN EWWWW, if youre gonna flirt with me as a MAN. nty. ifu u dont respect my boundaries, shauna shipman haters dni  . i Prefer to be left alone, but youre always free to whisper me
+- <details>
+  <summary>BYI</summary> i am not nice, and i WILL ghost you. I have Autism, Bpd, OCD, Adhd, and dyslexia. I have veryvery very short temperment, and i get very aggresive. 
+
 
 </div>
 
@@ -33,6 +32,3 @@
   </a>
 
 
-
-
-  <summary>info</summary>
