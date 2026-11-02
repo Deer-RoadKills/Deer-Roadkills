@@ -7,6 +7,7 @@
 
 <div align="center">
 
+ ![](https://img.shields.io/static/v1?label=ANTLERQUEEN&message=3&color=red)
  - Natalie / Nat .
 - She / he ,, masc lesbian
 - bpd ocd freak
