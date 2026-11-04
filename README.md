@@ -23,7 +23,7 @@
 
 <div align="center">
  
-[Strawpage 1](https://milliesaxee.straw.page) - [Strawpage 2](https://milliesaxe.straw.page) - [Rentry](https://rentry.co/milliesaxe)
+[Strawpage](https://milliesaxee.straw.page) - [Rentry](https://rentry.co/milliesaxe)
 
 </div>
 
