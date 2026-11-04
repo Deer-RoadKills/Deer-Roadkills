@@ -15,8 +15,9 @@
 - <details>
   <summary>dni</summary> anti petre/agere , homophobes, racists, ableists, anti whatever ship trope yj ships are (exp; Butcherqueen, lottienat), anti furries, ZOOPHILES DNI DNID DNI DNID NNI EWWWWW, pedophiles DNID DNIDINDNINDIDNIDNIDIN EWWWW, if youre gonna flirt with me as a MAN. nty. ifu u dont respect my boundaries, shauna shipman haters dni  . i Prefer to be left alone, but youre always free to whisper me
 - <details>
-  <summary>BYI</summary> i am not nice, and i WILL ghost you. I have Autism, Bpd, OCD, Adhd, and dyslexia. I have veryvery very short temperment, and i get very aggresive. 
+  <summary>BYI</summary> i am not nice, and i WILL ghost you. I have Autism, Bpd, OCD, Adhd, and dyslexia. I have veryvery very short temperment, and i get very aggresive.
 
+[rose landrys wife](https://heatedrivalry.fandom.com/wiki/Rose_Landry)
 
 </div>
 
