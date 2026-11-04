@@ -23,7 +23,7 @@
 
 <div align="center">
  
-[Strawpage](https://milliesaxee.straw.page) - [Rentry](https://rentry.co/milliesaxe)
+[Strawpage](https://milliesaxee.straw.page) - [Rentry](https://rentry.co/milliesaxe) < do NOT call me amanda or jennnifer.
 
 </div>
 
