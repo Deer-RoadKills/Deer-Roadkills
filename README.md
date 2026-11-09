@@ -11,6 +11,7 @@
  - Misty / Natalie / Nat .
 - She / they / he ,, chapstick lesbian
 - cool fact; i look almost exactly like misty quigley!!
+- seen sublime live 7/9/2023 ,, seen rob zombie live 9/14/2026 ,, seen NINE INCH NAILS live 3/13/2026 . + more
 - <details>
   <summary>info</summary>-  All socials milliesaxe. bpd ocd freak. iayor alltimes. i can be nonverbal due to my autism alot, and i have short temperment.  mainly find me as antlerqueen , shauna shipman , or nat. irl natalie scatorccio + misty quigley.  lottienat / butcherqueen truther . Often alone, but u can find me with friends sometimes. I am a PETRE. 
 - <details>
