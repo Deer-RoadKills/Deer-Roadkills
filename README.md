@@ -11,7 +11,7 @@
  - Misty / Natalie / Nat .
 - She / they / he ,, chapstick lesbian
 - cool fact; i look almost exactly like misty quigley!!
-- seen sublime live 7/9/2023 ,, seen rob zombie live 9/14/2026 ,, seen NINE INCH NAILS live 3/13/2026 . + more
+- shauna shipmans puppy
 - <details>
   <summary>info</summary>-  All socials milliesaxe. bpd ocd freak. iayor alltimes. i can be nonverbal due to my autism alot, and i have short temperment.  mainly find me as antlerqueen , shauna shipman , or nat. irl natalie scatorccio + misty quigley.  lottienat / butcherqueen truther . Often alone, but u can find me with friends sometimes. I am a PETRE. 
 - <details>
@@ -19,7 +19,7 @@
 - <details>
   <summary>BYI</summary> i am not nice, and i WILL ghost you. I have Autism, Bpd, OCD, Adhd, and dyslexia. I have veryvery very short temperment, and i get very aggresive.
 
-[rose landrys wife](https://heatedrivalry.fandom.com/wiki/Rose_Landry)
+[shauna shipmans wife](https://yellowjackets.fandom.com/wiki/Shauna_Sadecki)
 
 </div>
 
