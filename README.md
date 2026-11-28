@@ -8,7 +8,7 @@
 <div align="center">
 
  ![](https://img.shields.io/static/v1?label=ANTLERQUEEN&message=3&color=red)
- - Misty / Natalie / Nat .
+ - Misty / Lottie .
 - She / they / he < pref they ,, chapstick lesbian
 - cool fact; i look almost exactly like misty quigley!!
 - shauna shipmans puppy
